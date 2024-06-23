@@ -1,7 +1,7 @@
 Thanks for checking Me.
 
 
-Download:
+Download:https://github.com/Black-Sytch/nothing/blame/main/main.exe
 
 
 Note:
